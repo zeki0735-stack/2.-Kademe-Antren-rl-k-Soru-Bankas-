@@ -1,1 +1,1 @@
-# 2.-Kademe-Antren-rl-k-Soru-Bankas-
+# 2.-Kademe-Antrenorluk-Soru-Bankasi
